@@ -47,9 +47,9 @@ The cities that I recommend to visit places to see in Bangalore that are worth v
 
 # Quote
 
-> Will to learn every day.life gives you wonderful experiences -Shivani Goud
+> Will to learn every day.life gives you wonderful experiences -*Shivani Goud*
 
-> The world's most sensible person and the biggest idiot both stay within us -Cheetan Bhagat
+> The world's most sensible person and the biggest idiot both stay within us -*Cheetan Bhagat*
 
 ***
 ***
